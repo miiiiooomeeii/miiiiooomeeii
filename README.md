@@ -1,8 +1,8 @@
 # <img src="https://i.postimg.cc/13tjJS9h/hurivc.gif" /> 𝓜iotariu <img src="https://i.postimg.cc/13tjJS9h/hurivc.gif" />
 <div align="center">
-<img src="https://pixelsafari.neocities.org/stamps/animesketch.gif" /> <img width="99" height="59" alt="image" src="https://github.com/user-attachments/assets/2f57cf5a-86a7-44e9-8014-6539c9fd0252" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/32727840-4a66-4803-840f-9c6e20eb8cc1" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/3c2cc6d7-6b3a-4b5c-adf0-7edfadaee4ca" /> <img width="99" height="58" alt="image" src="https://github.com/user-attachments/assets/801a51c7-8a56-4681-b5c2-85baa6bd5e43" /> <img src="https://64.media.tumblr.com/10bfc7b7014970b7ae86d06be5064aa0/521eb2d08c86aa99-90/s100x200/9dcaddac9c5d9240e74b9b75ae52235217b0c22d.gifv" /><br><br>
-<img width="1373" height="397" alt="2026_Birthday Artworks_Wanderer(1)" /><br><br>
-<img src="https://github.com/user-attachments/assets/e6dedb98-b92b-4fae-9aa9-c3899082cdfc" align="left" width="280" vspace="10" /><br><br>
+<img src="https://pixelsafari.neocities.org/stamps/animesketch.gif" /> <img width="99" height="59" alt="image" src="https://y2k.neocities.org/stamps2/gloomy_bear_stamp_by_bunsona-d9x76vr.png" /> <img width="99" height="56" alt="image" src="https://64.media.tumblr.com/53b9b2d119461578f0c96658de3133c9/056c10c5bb9001d2-89/s250x400/07e9379274172168e789ac34aaebcf7af4998684.pnj" /> <img width="99" height="56" alt="image" src="https://64.media.tumblr.com/53e30a96da2320bdc22e85e277f8194e/48c65d939b1e1be0-1a/s250x400/892f91778cca917d34c3be244eb953860229733e.pnj" /> <img width="99" height="59" alt="image" src="https://64.media.tumblr.com/296dec62588f68bb3afedc7fddce996b/2eaf92485d9e8f59-85/s250x400/d39eb3d89af1a70630028f174b11eccb94a5b331.pnj" /> <img width="99" height="58" alt="image" src="https://64.media.tumblr.com/90980b3efc326abc427b035389db7b0d/22686bc424db3925-d3/s250x400/07343eb299123e334aea266c445c45a5a780fee1.pnj" /> <img src="https://64.media.tumblr.com/06a82743d2361cf93d4347cd49a78002/23cd2d8abd55e097-c7/s100x200/fc0151932d14ef8ddddb2932ac2b25983ac7ba88.gifv" /> <img src="https://64.media.tumblr.com/10bfc7b7014970b7ae86d06be5064aa0/521eb2d08c86aa99-90/s100x200/9dcaddac9c5d9240e74b9b75ae52235217b0c22d.gifv" /><br><br>
+<img <img width="1373" height="397" alt="2026_Birthday Artworks_Wanderer(1)" src="https://github.com/user-attachments/assets/ad4c0eeb-585f-43f0-ace9-28425f0bd599" /><br><br>
+<img src="https://github.com/user-attachments/assets/514e5c38-d1b7-4cd7-9028-d592ab779433" align="left" width="280" vspace="10" /><br><br>
 
 
 <div align="center">
@@ -82,16 +82,13 @@ ed / sh glorifiers、anyone who ignores boundaries<br>
 
 
 <div align="left">
-<img width="800" height="30" alt="image" src="https://github.com/user-attachments/assets/70189b47-b6d1-41a6-a7f3-7ea8399013e8" /><br><br>
+<img src="https://64.media.tumblr.com/0ea07f80724ea835ef9877f2f3b6cb5c/f4888dfd7cf96c7e-bc/s2048x3072/36a30a962b8ee6f6b14683ac785b606e9b0a65ef.pnj" /> <br><br>
 
 <br>
 
 
 <div align="left">
-<img src="https://pixelsafari.neocities.org/favicon/object/stationery/mail11.gif" />
-</div>
-
-i'm socially awkward, but i'm up for making new friends!<br><br>
+<img src="https://pixelsafari.neocities.org/favicon/object/stationery/mail11.gif" /> i'm socially awkward, but i'm up for making new friends!<br><br>
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 𝔰𝔞𝔶 𝔥𝔦 𝔞𝔫𝔶𝔱𝔦𝔪𝔢 ! <img src="https://pixelsafari.neocities.org/favicon/animals/cat/cat37.gif" /> ˶ᵔ ᵕ ᵔ˶
               ‎ ྀི ˖ ࣪ ‹ 𝟹 ࣪ ˖ ྀི<br>
@@ -102,3 +99,4 @@ i'm socially awkward, but i'm up for making new friends!<br><br>
 </p>     
 
 <br clear="all" />
+
