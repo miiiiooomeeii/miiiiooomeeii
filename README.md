@@ -1,7 +1,7 @@
 # <img src="https://i.postimg.cc/13tjJS9h/hurivc.gif" /> 𝓜iotariu <img src="https://i.postimg.cc/13tjJS9h/hurivc.gif" />
 <div align="center">
 <img src="https://pixelsafari.neocities.org/stamps/animesketch.gif" /> <img width="99" height="59" alt="image" src="https://github.com/user-attachments/assets/2f57cf5a-86a7-44e9-8014-6539c9fd0252" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/32727840-4a66-4803-840f-9c6e20eb8cc1" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/3c2cc6d7-6b3a-4b5c-adf0-7edfadaee4ca" /> <img width="99" height="58" alt="image" src="https://github.com/user-attachments/assets/801a51c7-8a56-4681-b5c2-85baa6bd5e43" /> <img src="https://64.media.tumblr.com/10bfc7b7014970b7ae86d06be5064aa0/521eb2d08c86aa99-90/s100x200/9dcaddac9c5d9240e74b9b75ae52235217b0c22d.gifv" /><br><br>
-<img <img width="1373" height="397" alt="2026_Birthday Artworks_Wanderer(1)" src="https://github.com/user-attachments/assets/49c8dd70-3cf3-4216-a819-bec5d6ae9364" /><br><br>
+<img width="1373" height="397" alt="2026_Birthday Artworks_Wanderer(1)" /><br><br>
 <img src="https://github.com/user-attachments/assets/e6dedb98-b92b-4fae-9aa9-c3899082cdfc" align="left" width="280" vspace="10" /><br><br>
 
 
@@ -96,8 +96,9 @@ i'm socially awkward, but i'm up for making new friends!<br><br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 𝔰𝔞𝔶 𝔥𝔦 𝔞𝔫𝔶𝔱𝔦𝔪𝔢 ! <img src="https://pixelsafari.neocities.org/favicon/animals/cat/cat37.gif" /> ˶ᵔ ᵕ ᵔ˶
               ‎ ྀི ˖ ࣪ ‹ 𝟹 ࣪ ˖ ྀི<br>
 
-<div align="center">
   
-![](https://komarev.com/ghpvc/?username=miiiiooomeeii&repo=miiiiooomeeii&color=d98cd6)
-</div>        
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=miiiiooomeeii&color=d98cd6&style=flat" alt="Profile Views">
+</p>     
+
 <br clear="all" />
