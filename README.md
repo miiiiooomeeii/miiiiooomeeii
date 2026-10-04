@@ -72,8 +72,8 @@ i can yap about my interests endlessly just tell me if i'm being annoying、menh
 <br>
 
 <div align="justify">
-f/o doubles、proship、under 14、homo/transphobes、racists、ableists、<br>
-drama starters、vagueposters、people who trauma dump unprompted、anti-kin、anti-therian、<br>
+f/o doubles、proship、under 14、homo/transphobes、racists、<br>
+drama starters、people who trauma dump unprompted、<br>
 ed / sh glorifiers、anyone who ignores boundaries<br>
 </div>
 
