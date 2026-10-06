@@ -108,7 +108,8 @@ ed / sh glorifiers、anyone who ignores boundaries<br>
  <img width="200" height="200" src="https://img1.picmix.com/output/stamp/normal/8/2/1/8/3008128_a9ee0.png" /> <img width="200" height="200" src="https://i.pinimg.com/736x/ef/3f/2e/ef3f2ed817398fd3f8185b63fe4a9b34.jpg" /><img width="100" height="100" src="https://img1.picmix.com/output/stamp/normal/7/0/7/0/2470707_a99ea.png" /> <img width="100" height="100" src="https://i.pinimg.com/736x/4b/82/0a/4b820abeb5ef12c65da8506ad14209f0.jpg" /> <img width="100" height="100" src="https://i.pinimg.com/736x/49/c2/e9/49c2e9db465be8ad60718677539bba75.jpg" /><br><br>
 
 
-  <div style="max-height: 400 px; overflow-y: auto; border: 1 px solid #ccc; padding: 10 px;">
+<div style="height: 400 px; overflow-y: auto; overflow-x: hidden;">
+  <div style="display: grid; grid-template-columns: repeat (5, 1 fr); gap: 10 px;">
     <img width="200" height="200" src="https://c.tenor.com/Oqrz15sQER0AAAAd/tenor.gif" />
     <img width="200" height="200" src="https://media1.tenor.com/m/fEaagYi6o2QAAAAd/scaramouche-meow.gif" />
     <img width="200" height="200" src="https://media1.tenor.com/m/-u5-A0BDOyMAAAAd/mihoyo-genshin.gif" />
