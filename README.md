@@ -93,14 +93,14 @@ ed / sh glorifiers、anyone who ignores boundaries<br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 𝔰𝔞𝔶 𝔥𝔦 𝔞𝔫𝔶𝔱𝔦𝔪𝔢 ! <img src="https://pixelsafari.neocities.org/favicon/animals/cat/cat37.gif" /> ˶ᵔ ᵕ ᵔ˶
               ‎ ྀི ˖ ࣪ ‹ 𝟹 ࣪ ˖ ྀི<br><br>
               
-  <img width="190" height="200" src="https://media1.tenor.com/m/aGIzOm7t3WoAAAAd/scara-meme.gif" /> <br><br>
+  <img width="190" height="200" src="https://media1.tenor.com/m/aGIzOm7t3WoAAAAd/scara-meme.gif" />ㅤㅤ୨♡୧ㅤㅤ<img width="200" height="200" src="https://media1.tenor.com/m/z8wRFcV5RewAAAAd/wanscara-wanderer-genshin.gif" /> <br><br>
+  
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=miiiiooomeeii&color=d98cd6&style=flat" alt="Profile Views">
 </p>     
 
 <br clear="all" />
 
-<img width="200" height="200" src="https://media1.tenor.com/m/z8wRFcV5RewAAAAd/wanscara-wanderer-genshin.gif" />
 <details>
 <summary>  <img src="https://64.media.tumblr.com/1d08bcf26118ad5036468bb76aff6d78/03e6b1764197a30a-7d/s75x75_c1/535855064dc1b31b29ec340d42e56ef2bee059d6.gifv" /> </summary>
 <img src="https://64.media.tumblr.com/f909cbca8923f60b46dc060ceff874f5/967f115ee5456bb4-97/s2048x3072/02840d82ea60b348706bd84ecd105711da368fb0.pnj" />
