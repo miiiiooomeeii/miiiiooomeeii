@@ -91,14 +91,9 @@ ed / sh glorifiers、anyone who ignores boundaries<br>
 <img src="https://pixelsafari.neocities.org/favicon/object/stationery/mail11.gif" /> i'm socially awkward, but i'm up for making new friends!<br><br>
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 𝔰𝔞𝔶 𝔥𝔦 𝔞𝔫𝔶𝔱𝔦𝔪𝔢 ! <img src="https://pixelsafari.neocities.org/favicon/animals/cat/cat37.gif" /> ˶ᵔ ᵕ ᵔ˶
-              ‎ ྀི ˖ ࣪ ‹ 𝟹 ࣪ ˖ ྀི<br>
+              ‎ ྀི ˖ ࣪ ‹ 𝟹 ࣪ ˖ ྀི<br><br>
               
-
-  
-<p align="center">
-  <img src="https://komarev.com/ghpvc/?username=miiiiooomeeii&color=d98cd6&style=flat" alt="Profile Views">
-</p>     
-  <img width="190" height="200" src="https://media1.tenor.com/m/aGIzOm7t3WoAAAAd/scara-meme.gif"
+  <img width="190" height="200" src="https://media1.tenor.com/m/aGIzOm7t3WoAAAAd/scara-meme.gif" <br><br>
 <div style="display: grid; grid-template-columns: repeat (5, 1 fr); gap: 10 px;">
   <img width="100" height="100" src="https://media1.tenor.com/m/m1FLSW108t4AAAAd/wanderer-genshin.gif" />
   <img width="100" height="100" src="https://media1.tenor.com/m/m1FLSW108t4AAAAd/wanderer-genshin.gif" />
@@ -108,6 +103,10 @@ ed / sh glorifiers、anyone who ignores boundaries<br>
   <img width="100" height="100" src="https://media1.tenor.com/m/m1FLSW108t4AAAAd/wanderer-genshin.gif" />
   <img width="100" height="100" src="https://media1.tenor.com/m/m1FLSW108t4AAAAd/wanderer-genshin.gif" />
 </div>
+  
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=miiiiooomeeii&color=d98cd6&style=flat" alt="Profile Views">
+</p>     
 
 <br clear="all" />
 
